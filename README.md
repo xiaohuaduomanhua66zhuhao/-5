@@ -10,8 +10,7 @@
 打包漫画可提供无密码的版本
 
 
-完结韩漫列表http://m.qpic.cn/psb?/V14Ncpgb23p9aI/5um65g08DmlEWGsu0C8WF0qlOFe*BBn9zoNmRMM44*g!/b/dDIBAAAAAAAA&bo=ywY4BAAAAAARJ.E!&rf=viewer_4
-
+完结韩漫列表http://m.qpic.cn/psb?/V10HPUK41ZcyuL/YMseopFuLxG5ssqee1LcdeTSiXe1tcbFhD4dlT3kOXM!/b/dGwBAAAAAAAA&bo=OATqJwAAAAARB8E!&rf=viewer_4
 
 完结列表1(有密码版) 编号1-50号https://pan.baidu.com/s/1nTiTeu2RHnKferNGhDdJyA
 
